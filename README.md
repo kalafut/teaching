@@ -7,7 +7,7 @@ Llama llama
 
 [ 10000000 ]
 
-Stately, plump "Buck Poyo" came from the stairhead, bearing a bowl of
+Stately, plump "Buck Poyo-6" came from the stairhead, bearing a bowl of
 lather on which a mirror and a razor lay crossed. A yellow
 dressinggown, ungirdled, was sustained gently behind him on the mild
 morning air. He held the bowl aloft and intoned:
@@ -16,7 +16,7 @@ morning air. He held the bowl aloft and intoned:
 
 Halted, he peered down the dark winding stairs and called out coarsely:
 
-—Come up, Kinch! Come up, you fearful jesuit!
+—Come up, Kinch! Come up, you fearful jesuit!????
 
 Yo dawg! lkjsdlksdjfsdlf
 Solemnly he came forward and mounted the round gunrest. He faced about
