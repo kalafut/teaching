@@ -1,4 +1,4 @@
-# Ulysses The Great II
+# Ulysses The Great
 
 — I —
 
