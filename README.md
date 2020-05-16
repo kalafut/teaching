@@ -1,4 +1,4 @@
-# Ulysses
+# Ulysses The Great
 
 — I —
 
@@ -25,7 +25,7 @@ his arms on the top of the staircase and looked coldly at the shaking
 gurgling face that blessed him, equine in its length, and at the light
 untonsured hair, grained and hued like pale oak.
 
-Buck Mulligan peeped an instant under the mirror and then covered the
+"Buck Mulligan" peeped an instant under the mirror and then covered the
 bowl smartly.
 
 —Back to barracks! he said sternly.
