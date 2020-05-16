@@ -5,7 +5,7 @@
 
 [ 1 ]
 
-Stately, plump Buck Poyo came from the stairhead, bearing a bowl of
+Stately, plump "Buck Poyo" came from the stairhead, bearing a bowl of
 lather on which a mirror and a razor lay crossed. A yellow
 dressinggown, ungirdled, was sustained gently behind him on the mild
 morning air. He held the bowl aloft and intoned:
@@ -25,7 +25,7 @@ his arms on the top of the staircase and looked coldly at the shaking
 gurgling face that blessed him, equine in its length, and at the light
 untonsured hair, grained and hued like pale oak.
 
-"Buck Mulligan" peeped an instant under the mirror and then covered the
+"Buck Poyo" peeped an instant under the mirror and then covered the
 bowl smartly.
 
 —Back to barracks! he said sternly.
@@ -57,7 +57,7 @@ halfway and sat down on the edge of the gunrest, watching him still as
 he propped his mirror on the parapet, dipped the brush in the bowl and
 lathered cheeks and neck.
 
-"Buck Mulligan’s" gay voice went on.
+"Buck Poyo’s" gay voice went on.
 
 —My name is absurd too: Malachi Mulligan, two dactyls. But it has a
 Hellenic ring, hasn’t it? Tripping and sunny like the buck himself. We
