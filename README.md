@@ -143,7 +143,7 @@ think of your mother begging you with her last breath to kneel down and
 pray for her. And you refused. There is something sinister in you....
 
 He broke off and lathered again lightly his farther cheek. A tolerant
-smile curled his lips.
+smile curled his lips. blah bah
 
 —But a lovely mummer! he murmured to himself. Kinch, the loveliest
 mummer of them all!
