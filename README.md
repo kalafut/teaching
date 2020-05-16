@@ -16,6 +16,7 @@ Halted, he peered down the dark winding stairs and called out coarsely:
 
 —Come up, Kinch! Come up, you fearful jesuit!
 
+Yo dawg!
 Solemnly he came forward and mounted the round gunrest. He faced about
 and blessed gravely thrice the tower, the surrounding land and the
 awaking mountains. Then, catching sight of Stephen Dedalus, he bent
