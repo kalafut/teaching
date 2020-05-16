@@ -57,7 +57,7 @@ halfway and sat down on the edge of the gunrest, watching him still as
 he propped his mirror on the parapet, dipped the brush in the bowl and
 lathered cheeks and neck.
 
-Buck Mulligan’s gay voice went on.
+"Buck Mulligan’s" gay voice went on.
 
 —My name is absurd too: Malachi Mulligan, two dactyls. But it has a
 Hellenic ring, hasn’t it? Tripping and sunny like the buck himself. We
