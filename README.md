@@ -9,7 +9,7 @@ Llama llama
 
 Stately, plump "Buck Poyo" came from the stairhead, bearing a bowl of
 lather on which a mirror and a razor lay crossed. A yellow
-dressinggown, ungirdled, was sustained gently behind him on the mild
+dressinggown, ungirdadsfadsfled, was sustained gently behind him on the mild
 morning air. He held the bowl aloft and intoned:
 
 —_Introibo ad altare Dei_.
